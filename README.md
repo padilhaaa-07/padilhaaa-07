@@ -8,3 +8,4 @@
 padilhaaa-07/padilhaaa-07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+sou a ketlen gabriele sou aluna tenho enterece em ser farmaceutica trabalha ter casa e o enpretgo proprio
